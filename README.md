@@ -1,1 +1,1 @@
-https://github.com/secretplayaesmeraldaaa/programadiariodream/blob/main/sd.jpeg
+secretplayaesmeraldaaa/programadiariodream/blob/main/sd.jpeg
